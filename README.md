@@ -53,7 +53,7 @@ Key tracks (My Favorites):
 - "Nandemonaiya"
 
 ## How to Watch
-- Watch it in CrunchyRoll or Just Pirate it 😉😉😎😎.
+- Watch it in Netflix or Just Pirate it 😉😉😎😎.
 - Recommended: Watch japanese dub with subtitles to for more impact.
 
 ## Tasks I Completed
